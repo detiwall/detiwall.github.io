@@ -1,1 +1,1 @@
-# pei3x3videowall.github.io
+# detiwall.github.io
